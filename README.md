@@ -1,2 +1,0 @@
-# MY-RESUME
-MY RESUME
